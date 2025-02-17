@@ -80,7 +80,8 @@ Candy AI introduces a fusion of NSFW image generation and AI-powered virtual com
 
 ⭐⭐⭐[**Explore Candy AI for Free**](https://candy.ai/?via=e9800beabc)⭐⭐⭐
 
-![image/png](https://cdn-uploads.huggingface.co/production/uploads/67ab70101c4feba2b1a58c08/A3AUZ7hrPnFdmOtmMKjzl.png)
+![image](https://github.com/user-attachments/assets/31484f40-9c40-48ef-8afc-ca9873a7bcb8)
+
 
 ### Key Features:
 •      Custom partner creation
