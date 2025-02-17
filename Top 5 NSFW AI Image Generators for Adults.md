@@ -4,7 +4,7 @@ Welcome to our in-depth review of the leading AI-powered platforms specializing 
 
 #### Contents
 
-1.    [My Dreams Studio](https://mydreams.studio/nsfw-adult-ai-image-generator?pa=e9800beabc)
+1.    [My Dreams Studio](https://mydreams.studio/nsfw-adult-ai-image-generator/ref/e9800beabc/)
 2.    [PornWorks](https://pornworks.com/?refid=e9800beacb)
 3.    [Candy AI](https://candy.ai/?via=e9800beabc)
 4.    [CreatePorn](https://www.createporn.com/?ref=0ec9965ecc76c082b62ac004f878d367)
@@ -14,7 +14,7 @@ Welcome to our in-depth review of the leading AI-powered platforms specializing 
 
 A rising platform in the adult content sector, My Dreams Studio quickly gained popularity for producing top-quality NSFW AI images. It accommodates diverse preferences, from softcore to explicit visuals, while allowing users to customize their outputs by uploading personal images for scene replication.
 
-⭐⭐⭐[**Explore My Dreams Studio for Free**](https://mydreams.studio/nsfw-adult-ai-image-generator?pa=e9800beabc)⭐⭐⭐
+⭐⭐⭐[**Explore My Dreams Studio for Free**](https://mydreams.studio/nsfw-adult-ai-image-generator/ref/e9800beabc/)⭐⭐⭐
 
 ![image/png](https://cdn-uploads.huggingface.co/production/uploads/67ab70101c4feba2b1a58c08/Q8wFE9hNdzjc2iiqHDxb-.png)
 
@@ -43,7 +43,7 @@ A rising platform in the adult content sector, My Dreams Studio quickly gained p
 •      Enhanced artistic styles
 •      Expanded aspect ratio and image sizing
 
-⭐⭐⭐[**Start My Dreams Studio for Free**](https://mydreams.studio/nsfw-adult-ai-image-generator?pa=e9800beabc)⭐⭐⭐
+⭐⭐⭐[**Start My Dreams Studio for Free**](https://mydreams.studio/nsfw-adult-ai-image-generator/ref/e9800beabc/)⭐⭐⭐
 
 ## PornWorks
 
