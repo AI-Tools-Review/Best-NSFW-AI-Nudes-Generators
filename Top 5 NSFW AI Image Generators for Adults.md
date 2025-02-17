@@ -51,7 +51,8 @@ PornWorks is a specialized platform focusing on adult content generation. It off
 
 ⭐⭐⭐[**Try PornWorks for Free**](https://pornworks.com/?refid=e9800beacb)⭐⭐⭐
 
-![image/png](https://cdn-uploads.huggingface.co/production/uploads/67ab70101c4feba2b1a58c08/XQiIGzfsdwuUoSw9U6jvo.png)
+![image](https://github.com/user-attachments/assets/cf759a40-24b0-4d90-b4cc-9fa92e84fee5)
+
 
 ### Key Features:
 •      Text-to-Image and image-based generation
